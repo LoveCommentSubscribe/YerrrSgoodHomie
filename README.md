@@ -1,2 +1,2 @@
 # YerrrSgoodHomie
-Just saying hello
+Just saying hi
